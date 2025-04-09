@@ -1,1 +1,1 @@
-# RealEstate-Markrting-Hub
+# RealEstate-Marketing-Hub
